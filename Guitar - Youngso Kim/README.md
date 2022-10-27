@@ -1,1 +1,0 @@
-Youngso Kim my idolll
