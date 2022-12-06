@@ -1,6 +1,6 @@
 ## INFORMATION
 
-This is my music playlists 😌😌
+This is my music playlists list 😌😌
 
 ---
 
